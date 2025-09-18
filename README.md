@@ -57,3 +57,5 @@
 **Trust isn’t given; it’s earned.** We The North Market has become a trusted name for a reason. It’s not about flashy promises—it’s about delivery, day after day. If you’re searching for a reliable, safe, and authentic darknet experience in Canada, start with the official http://hh2paw7ouhfjozylujs3qp4rql7xc76ce63ffzvtlpicjqgeiqxp4oad.onion. Join the thousands who’ve already made it their go-to source for quality and peace of mind.
 
 *Remember: On the darknet, vigilance is your best friend. Always verify your links. Always use the official source. Always prioritize your safety.*
+
+Update:  18 September Link corrected
