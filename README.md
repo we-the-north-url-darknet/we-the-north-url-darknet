@@ -58,4 +58,6 @@
 
 *Remember: On the darknet, vigilance is your best friend. Always verify your links. Always use the official source. Always prioritize your safety.*
 
-Update:  18 September Link corrected
+
+
+Update:  Wednesday 01 October 2025 TOR links fixed
